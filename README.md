@@ -1,0 +1,1 @@
+# Lenovo-14ARE05-Hackintosh
